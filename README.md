@@ -1,2 +1,2 @@
 # Site-do-cao
-O site fala sobre o melhor amigo do homem que tem objetivo de intreter e informar por isso o cachorro é o melhor amigo do homem.
+O site do cão visa trazer intreterimento a quem gosta de cães e informar e trazer a conscientização do abandono animal.
